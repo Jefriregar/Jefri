@@ -1,2 +1,5 @@
 # Jefri
-Haerd work
+
+Hi
+
+Disini saya baru belajar, tolong saran dan masukannya
